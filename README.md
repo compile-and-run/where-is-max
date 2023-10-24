@@ -1,5 +1,7 @@
 # Collection of theories on why Max disappeared
 
+Max's disappearance on 16 October has sparked a lot of discussion on his discord channel. Here, I collected all the theories that people shared and talked about.
+
 **Depression:**
 > khronos group за поворотом стопанули его\
 > за наезды на vulkan спрашивают )
