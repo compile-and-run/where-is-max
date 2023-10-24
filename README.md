@@ -199,5 +199,10 @@ Max's disappearance on 16 October has sparked a lot of discussion on his discord
 **dinche:**
 > Блин, а что если Максим купил поддержаный масл кар и щас его чинит, поэтому нет времени?)
 
+---
+
+**alice_rAbb1t:**
+> я думаю он женился и родил ребенка\
+> это единственное объяснение
 
 ---
