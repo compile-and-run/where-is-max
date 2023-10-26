@@ -206,3 +206,8 @@ Max's disappearance on 16 October has sparked a lot of discussion on his discord
 > это единственное объяснение
 
 ---
+
+**oboroten:**
+> Он себе пришил сиськи и теперь будет стримить бассейн с бананами?
+
+---
