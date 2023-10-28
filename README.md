@@ -211,3 +211,8 @@ Max's disappearance on 16 October has sparked a lot of discussion on his discord
 > Он себе пришил сиськи и теперь будет стримить бассейн с бананами?
 
 ---
+
+**WoodyWizard:**
+мне снилось как стримлер подрубил, и он куда-то переехал и с ним какой-то мужчина был KappaPride :MMMM:
+
+---
